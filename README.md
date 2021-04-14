@@ -1,3 +1,2 @@
-# travel.com
-."travel.com - To move from point to point, often done at the spur of a moment."
-.
+# top.com
+"top.com - the one who I N S E R T S inside their partner (mostly homosexual couples)"
